@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @HuhKae
 - 👀 I’m interested in Cybersecurity, Finance and etc.
-- ⚡ Fun fact: Love For Coffee/Tea, Sweet Tooth
+- ⚡ Fun fact: Love For Coffee/Tea, A Sweet Tooth
