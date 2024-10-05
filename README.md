@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @HuhKae
+- 👋 Hi there, I’m Tabitooo also known as Travis Teo.
 - 👀 I’m interested in Cybersecurity, Finance and etc.
-- ⚡ Fun fact: Love For Coffee/Tea, A Sweet Tooth
+- ⚡ Quick Fun Fact: I have a love For Coffee/Tea, and I'm a Sweet Tooth.
